@@ -4,6 +4,8 @@
 
 <div align="center">
 
-i dont front alone so i will be less blunt but still do not interact unless i interact first. if you interact i will not respond !! they wont let me !!!!!!!!!!!!
+obviously .. my source does not reflect on what i support irl 👀 stop treating ppl like they support everything that happens within media they consume PLEASEEEEEE IM SO SICK OF THIS
 
-apparently my source is too embarrassing to make a pony of so if you see me online, im probably using offline mode cus host doesnt want to lose any friends LOL!!!!
+also i am NOT my source, please dont treat me like i am 🧐 that is all i think .. thank you
+
+read my rentry, i wont reply to any messages i get because i get annoyed easily & snap at ppl when stuff doesnt go my way 👀 
