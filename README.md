@@ -1,11 +1,19 @@
-<p align="center">
-  <img src="https://files.catbox.moe/u277td.png">
-</p>
-
 <div align="center">
 
-obviously .. my source does not reflect on what i support irl 👀 stop treating ppl like they support everything that happens within media they consume PLEASEEEEEE IM SO SICK OF THIS
+*they ain't got a prayer!*
 
-also i am NOT my source, please dont treat me like i am 🧐 that is all i think .. thank you
+<p align="center">
+  <img src="https://files.catbox.moe/9zbt83.png">
+</p>
 
-read my rentry, i wont reply to any messages i get because i get annoyed easily & snap at ppl when stuff doesnt go my way 👀 
+☆ ontab alot, i like peoplewatching
+
+☆ short tempered & easily upset
+
+☆ i dont mind c+h, just dont interact with me
+
+<p align="center">
+  <img src="https://files.catbox.moe/3b6ngk.png">
+</p>
+
+[ata](https://populi.atabook.org)
