@@ -1,6 +1,6 @@
 <div align="center">
 
-*they ain't got a prayer!*
+*i know i won !! i like winning!! :D*
 
 <p align="center">
   <img src="https://files.catbox.moe/9zbt83.png">
