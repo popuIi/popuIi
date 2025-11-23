@@ -16,4 +16,4 @@
   <img src="https://files.catbox.moe/3b6ngk.png">
 </p>
 
-[ata](https://populi.atabook.org)
+[ata](https://populi.atabook.org) ⁔ [rentry](https://rentry.co/dykeor)
