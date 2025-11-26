@@ -8,7 +8,9 @@
 
 ☆ ontab alot, i like peoplewatching
 
-☆ short tempered & easily upset
+☆ i get upset if things dont go my way
+
+☆ short tempered & easily reactive **sometimes**
 
 ☆ i dont mind c+h, just dont interact with me
 
