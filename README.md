@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/9zbt83.png">
 </p>
 
-![](https://komarev.com/ghpvc/?username=popuIi&color=4ce9e9) 
+![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
 
 ☆ ontab alot, i like peoplewatching
