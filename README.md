@@ -8,7 +8,7 @@ ${\textsf{\color{#44848b}what}}$ ${\textsf{\color{#44608b}will}}$ ${\textsf{\col
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
-${\textsf{\color{#44848b}꩜}}$ ${\textsf{\color{#44608b}if}}$ ${\textsf{\color{#51448b}you}}$ ${\textsf{\color{#7a448b}have}}$ ${\textsf{\color{#8b4481}c+h}}$ ${\textsf{\color{#8b4467}expect}}$ ${\textsf{\color{#8a3641}me....}}$
+${\textsf{\color{#44848b}꩜}}$ ${\textsf{\color{#44608b}c+h}}$ ${\textsf{\color{#51448b}havers}}$ ${\textsf{\color{#7a448b}expect}}$ ${\textsf{\color{#8b4481}my}}$ ${\textsf{\color{#8b4467}awesome}}$ ${\textsf{\color{#8a3641}presence..}}$
 
 ${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}PLEASE}}$ ${\textsf{\color{#51448b}SIT}}$ ${\textsf{\color{#7a448b}WITH}}$ ${\textsf{\color{#8b4481}MY}}$ ${\textsf{\color{#8b4467}PIXELS}}$ ${\textsf{\color{#8a3641}HGRARGHH!!!!!!}}$
 
