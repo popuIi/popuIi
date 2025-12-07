@@ -3,7 +3,7 @@
 ${\textsf{\color{#44848b}what}}$ ${\textsf{\color{#44608b}will}}$ ${\textsf{\color{#51448b}i}}$ ${\textsf{\color{#7a448b}do}}$ ${\textsf{\color{#8b4481}now}}$ ${\textsf{\color{#8b4467}that}}$ ${\textsf{\color{#8a3641}you're}}$ ${\textsf{\color{#7d2625}gone?}}$
 
 <p align="center">
-  <img src="https://files.catbox.moe/9zbt83.png">
+  <img src="https://files.catbox.moe/2fqowg.png">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
