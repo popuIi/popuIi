@@ -8,6 +8,7 @@ ${\textsf{\color{#44848b}what}}$ ${\textsf{\color{#44608b}will}}$ ${\textsf{\col
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
+${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}I}}$ ${\textsf{\color{#51448b}have}}$ ${\textsf{\color{#7a448b}like.}}$ ${\textsf{\color{#8b4481}3}}$ ${\textsf{\color{#8b4467}pony}}$ ${\textsf{\color{#8a3641}styles}}$
 
 ${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}i}}$ ${\textsf{\color{#51448b}love}}$ ${\textsf{\color{#7a448b}talking}}$ ${\textsf{\color{#8b4481}to}}$ ${\textsf{\color{#8b4467}new}}$ ${\textsf{\color{#8a3641}people!!}}$
 
