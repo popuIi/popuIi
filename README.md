@@ -1,27 +1,21 @@
 <div align="center">
 
-${\textsf{\color{#44848b}what}}$ ${\textsf{\color{#44608b}will}}$ ${\textsf{\color{#51448b}i}}$ ${\textsf{\color{#7a448b}do}}$ ${\textsf{\color{#8b4481}now}}$ ${\textsf{\color{#8b4467}that}}$ ${\textsf{\color{#8a3641}you're}}$ ${\textsf{\color{#7d2625}gone?}}$
-
-<p align="center">
-  <img src="https://files.catbox.moe/2fqowg.png">
-</p>
+[ata](https://populi.atabook.org) 
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
-${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}I}}$ ${\textsf{\color{#51448b}have}}$ ${\textsf{\color{#7a448b}like.}}$ ${\textsf{\color{#8b4481}3}}$ ${\textsf{\color{#8b4467}pony}}$ ${\textsf{\color{#8a3641}styles}}$
+<p align="center">
+  <img src="https://i.postimg.cc/9MyzjdP3/Untitled503-20251216014736.png">
+</p>
 
-${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}i}}$ ${\textsf{\color{#51448b}love}}$ ${\textsf{\color{#7a448b}talking}}$ ${\textsf{\color{#8b4481}to}}$ ${\textsf{\color{#8b4467}new}}$ ${\textsf{\color{#8a3641}people!!}}$
+${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}i}}$ ${\textsf{\color{#6c71ce}love}}$ ${\textsf{\color{#8489d9}talking}}$ ${\textsf{\color{#a1a5ec}to}}$ ${\textsf{\color{#bbbff8}new}}$ ${\textsf{\color{#d9dbff}people!!}}$
 
-${\textsf{\color{#44848b}⤷}}$ ${\textsf{\color{#44608b}you}}$ ${\textsf{\color{#51448b}can}}$ ${\textsf{\color{#7a448b}whisper}}$ ${\textsf{\color{#8b4481}me}}$ ${\textsf{\color{#8b4467}to}}$ ${\textsf{\color{#8a3641}talk ~ :D}}$
+${\textsf{\color{#212793}⤷}}$ ${\textsf{\color{#3239b0}you}}$ ${\textsf{\color{#6c71ce}can}}$ ${\textsf{\color{#8489d9}whisper}}$ ${\textsf{\color{#a1a5ec}me}}$ ${\textsf{\color{#bbbff8}to}}$ ${\textsf{\color{#d9dbff}talk ~ :D}}$
 
-${\textsf{\color{#44848b}꩜}}$ ${\textsf{\color{#44608b}art}}$ ${\textsf{\color{#51448b}by}}$ ${\textsf{\color{#7a448b}yumyum-cult}}$ ${\textsf{\color{#8b4481}on}}$ ${\textsf{\color{#8b4467}tumblr}}$ ${\textsf{\color{#8a3641}ok?}}$
+${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}art}}$ ${\textsf{\color{#6c71ce}by}}$ ${\textsf{\color{#8489d9}ch00ls}}$ ${\textsf{\color{#a1a5ec}on}}$ ${\textsf{\color{#bbbff8}twitter}}$ ${\textsf{\color{#d9dbff}ok?}}$
 
-${\textsf{\color{#44848b}꩜}}$ ${\textsf{\color{#44608b}c+h}}$ ${\textsf{\color{#51448b}havers}}$ ${\textsf{\color{#7a448b}expect}}$ ${\textsf{\color{#8b4481}my}}$ ${\textsf{\color{#8b4467}awesome}}$ ${\textsf{\color{#8a3641}presence..}}$
-
-${\textsf{\color{#44848b}𖦹}}$ ${\textsf{\color{#44608b}PLEASE}}$ ${\textsf{\color{#51448b}SIT}}$ ${\textsf{\color{#7a448b}WITH}}$ ${\textsf{\color{#8b4481}MY}}$ ${\textsf{\color{#8b4467}PIXELS}}$ ${\textsf{\color{#8a3641}HGRARGHH!!!!!!}}$
+${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}PLEASE}}$ ${\textsf{\color{#6c71ce}SIT}}$ ${\textsf{\color{#8489d9}WITH}}$ ${\textsf{\color{#a1a5ec}MY}}$ ${\textsf{\color{#bbbff8}PIXELS}}$ ${\textsf{\color{#d9dbff}HGRARGHH!!!!!!}}$
 
 <p align="center">
   <img src="https://files.catbox.moe/3b6ngk.png">
 </p>
-
-[ata](https://populi.atabook.org) ⁔ [rentry](https://rentry.co/dykeor)
