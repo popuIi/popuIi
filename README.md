@@ -1,6 +1,6 @@
 <div align="center">
 
-[ata](https://populi.atabook.org) ${\textsf{\color{#212793}†}}$ [tree](https://decomytree.com/home?hashedId=QmavkuNYN_d0)
+[ata](https://populi.atabook.org) ${\textsf{\color{#212793}⩊}}$ [tree](https://decomytree.com/home?hashedId=QmavkuNYN_d0)
 
 <p align="center">
   <img src="https://files.catbox.moe/5nzicr.png">
@@ -8,6 +8,7 @@
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
+${\textsf{\color{#212793}𖦹}}$ [ship boundaries](https://rentry.co/dykeor)
 
 ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}art}}$ ${\textsf{\color{#6c71ce}by}}$ ${\textsf{\color{#8489d9}ch00ls}}$ ${\textsf{\color{#a1a5ec}on}}$ ${\textsf{\color{#bbbff8}twitter}}$ ${\textsf{\color{#d9dbff}ok?}}$
 
