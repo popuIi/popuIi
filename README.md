@@ -1,6 +1,6 @@
 <div align="center">
 
-[ata](https://populi.atabook.org) ${\textsf{\color{#212793}⩊}}$ [tree](https://decomytree.com/home?hashedId=QmavkuNYN_d0)
+[ata](https://populi.atabook.org)
 
 <p align="center">
   <img src="https://files.catbox.moe/5nzicr.png">
