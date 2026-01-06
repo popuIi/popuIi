@@ -3,14 +3,14 @@
 [ata](https://populi.atabook.org)
 
 <p align="center">
-  <img src="https://files.catbox.moe/5nzicr.png">
+  <img src="https://files.catbox.moe/0bvcdi.png">
 </p>
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
 ${\textsf{\color{#212793}𖦹}}$ [.co/charlute](https://rentry.co/charlute)
 
-${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}art}}$ ${\textsf{\color{#6c71ce}by}}$ ${\textsf{\color{#8489d9}ch00ls}}$ ${\textsf{\color{#a1a5ec}on}}$ ${\textsf{\color{#bbbff8}twitter}}$ ${\textsf{\color{#d9dbff}ok?}}$
+${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}art}}$ ${\textsf{\color{#6c71ce}by}}$ ${\textsf{\color{#8489d9}jd0cu}}$ ${\textsf{\color{#a1a5ec}on}}$ ${\textsf{\color{#bbbff8}twitter}}$ ${\textsf{\color{#d9dbff}ok?}}$
 
 ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}you}}$ ${\textsf{\color{#6c71ce}can}}$ ${\textsf{\color{#8489d9}always}}$ ${\textsf{\color{#a1a5ec}send}}$ ${\textsf{\color{#bbbff8}me}}$ ${\textsf{\color{#d9dbff}whispers ~ :D}}$
 
