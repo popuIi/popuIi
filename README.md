@@ -8,7 +8,7 @@
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=viewers&color=4ce9e9) 
 
-${\textsf{\color{#212793}𖦹}}$ [.co/charlute](https://rentry.co/charlute)
+${\textsf{\color{#212793}𖦹}}$ [.co/fashionbeIle](https://rentry.co/fashionbeIle)
 
 ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}art}}$ ${\textsf{\color{#6c71ce}by}}$ ${\textsf{\color{#8489d9}jd0cu}}$ ${\textsf{\color{#a1a5ec}on}}$ ${\textsf{\color{#bbbff8}twitter}}$ ${\textsf{\color{#d9dbff}ok?}}$
 
