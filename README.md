@@ -17,3 +17,12 @@ ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}you}}$ ${\textsf{\colo
 ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}please}}$ ${\textsf{\color{#6c71ce}sit}}$ ${\textsf{\color{#8489d9}with}}$ ${\textsf{\color{#a1a5ec}me..}}$ ${\textsf{\color{#bbbff8}im}}$ ${\textsf{\color{#d9dbff}goated  ~ (◕◞◕)}}$
 
 ${\textsf{\color{#212793}𖦹}}$ ${\textsf{\color{#3239b0}i}}$ ${\textsf{\color{#6c71ce}love}}$ ${\textsf{\color{#8489d9}talking}}$ ${\textsf{\color{#a1a5ec}to}}$ ${\textsf{\color{#bbbff8}new}}$ ${\textsf{\color{#d9dbff}people!!}}$
+
+
+
+
+
+
+<img width="432" height="257" alt="image" src="https://github.com/user-attachments/assets/72ff013f-6ed3-40ce-8668-4ccf80800b15" /> 
+
+^ the political yuricule
