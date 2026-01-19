@@ -1,6 +1,6 @@
 <div align="center">
 
-[ata](https://populi.atabook.org)
+[ata](https://glitchtrap.atabook.org)
 
 <p align="center">
   <img src="https://files.catbox.moe/0bvcdi.png">
