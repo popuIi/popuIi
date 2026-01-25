@@ -6,6 +6,6 @@
 
 ${\textsf{\color{#921e3b}𖤐}}$ ${\textsf{\color{#a12141}c+h}}$ ${\textsf{\color{#be3154}always}}$ ${\textsf{\color{#d04669}welcomed}}$ ${\textsf{\color{#e88ea5}even}}$ ${\textsf{\color{#f7d7df}if}}$ ${\textsf{\color{#fae4ea}not}}$ ${\textsf{\color{#fbecef}stated!}}$
 
-${\textsf{\color{#921e3b}𖤐}}$ ${\textsf{\color{#a12141}read}}$ ${\textsf{\color{#d04669}my}}$ ${\textsf{\color{#d04669}rentry}}$ ${\textsf{\color{#e3748f}byi}}$ ${\textsf{\color{#e88ea5}!!}}$ ${\textsf{\color{#eda9ba}esp}}$ ${\textsf{\color{#f7d7df}boundaries}}$  ${\textsf{\color{#fbecef}ok?}}$
+${\textsf{\color{#921e3b}𖤐}}$ ${\textsf{\color{#a12141}read}}$ ${\textsf{\color{#be3154}my}}$ ${\textsf{\color{#d04669}rentry}}$ ${\textsf{\color{#e3748f}byi}}$ ${\textsf{\color{#e88ea5}!!}}$ ${\textsf{\color{#eda9ba}esp}}$ ${\textsf{\color{#f7d7df}boundaries}}$  ${\textsf{\color{#fbecef}ok?}}$
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=꩜&color=921e3b) 
