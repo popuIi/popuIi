@@ -1,6 +1,6 @@
 <div align="center">
 
-[ata](https://glitchtrap.atabook.org) / [rentry](https://rentry.co/fashionbeIle) / [strw](https://lilycrow.straw.page)
+[ata](https://glitchtrap.atabook.org)   ‎ ‎ ⑊ ‎  ‎  [rentry](https://rentry.co/fashionbeIle)  ‎  ‎ ⑊  ‎ ‎  [strw](https://lilycrow.straw.page)
 
 <img src=https://files.catbox.moe/jjm4jr.png>
 
