@@ -10,6 +10,10 @@ ${\textsf{\color{#921e3b}𖤐}}$ ${\textsf{\color{#a12141}read}}$ ${\textsf{\col
 
 ![](https://komarev.com/ghpvc/?username=popuIi&label=꩜&color=921e3b) 
 
-
+  ‎ ‎
+  
+me and that guy i hate
 
 <img width="327" height="190" alt="image" src="https://github.com/user-attachments/assets/f3e31996-5f02-4b68-8960-0d3291a0238c" />
+
+<img width="289" height="163" alt="image" src="https://github.com/user-attachments/assets/1f849dfb-cdf0-41f5-a011-a3f3a5e31e37" />
